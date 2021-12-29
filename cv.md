@@ -25,6 +25,8 @@ I got a good technical base and experience in various fields. I am highly educat
 
 ### Education:
 National University " Lvivska Politechnika", Engineer of Electronic Technic
+
+
 National University I.Franka, specialist of finance
 
 
